@@ -1,4 +1,4 @@
-# 
+# Affinity Designer for macOS new Script - layer styles and masking tools is the best Affinity Designer for macOS script, featuring layer styles and masking tools. Safe, efficient,
 
 
 
